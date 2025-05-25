@@ -9,3 +9,5 @@
 *pero es debido a que no suelo estar en relaciones tan seguido*
 **se los juro, solo he tenido una novia hasta ahora**
 *(tengo 16)*
+
+*okokokok, ya paro con esto ajajajajajajajaj*
