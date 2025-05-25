@@ -4,3 +4,8 @@
 #### pero descubri que solo habia sido uno mas en su lista
 ##### ya que era de las que salian de fiesta en la noche y se emborrachaban
 ###### pero ni modo bros, creo que fue bueno que eso terminara
+
+**para ser honestos aun la extrano, es algo duro para mi**
+*pero es debido a que no suelo estar en relaciones tan seguido*
+**se los juro, solo he tenido una novia hasta ahora**
+*(tengo 16)*
